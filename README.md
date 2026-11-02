@@ -1,0 +1,1 @@
+# ogrenme-temelli-fen-bilimleri-7-sinif-etkinlik-kitabi
